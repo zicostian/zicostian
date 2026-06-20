@@ -10,4 +10,4 @@
 
 ---
 
-## 👉 Featured personal projects below
+## 👉 Featured work below
