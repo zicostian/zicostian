@@ -14,4 +14,4 @@ My work spans web, mobile, API, performance, and AI-powered testing, with a stro
 
 ---
 
-## 👉 Featured work below
+## 👉 Featured personal projects below
