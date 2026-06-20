@@ -10,7 +10,7 @@ My work spans web, mobile, API, performance, and AI-powered testing, with a stro
 
 ## 📫 Connect With Me on Linkedin and get to know each other better!
 
-* Click: linkedin.com/in/zicostian (https://linkedin.com/in/zicostian)
+* Click: [linkedin.com/in/zicostian](https://linkedin.com/in/zicostian)
 
 ---
 
