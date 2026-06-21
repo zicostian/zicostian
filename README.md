@@ -1,6 +1,6 @@
 #### Hi, I'm Zico 👋
 
-#### Quality Engineering Leader | Automation | AI-Powered Engineering
+##### Quality Engineering Leader | Automation | AI-Powered Engineering
 
 ---
 
