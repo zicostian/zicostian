@@ -9,5 +9,3 @@
 * Click: [linkedin.com/in/zicostian](https://linkedin.com/in/zicostian)
 
 ---
-
-#### 👉 Featured work below
